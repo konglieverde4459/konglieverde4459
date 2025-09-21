@@ -31,22 +31,4 @@ Personal GitHub Pages site for konglieverde4459
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-B79e3G9VLM
+JOfymDCJ
