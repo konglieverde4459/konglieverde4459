@@ -21,34 +21,4 @@ Personal GitHub Pages site for konglieverde4459
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Su2CK
+YRy43zXn
